@@ -1,2 +1,0 @@
-# baoshikang.github.io
-sup
